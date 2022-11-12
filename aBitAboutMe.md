@@ -1,0 +1,3 @@
+- Hi, I’m @Not-Rogaras
+- I’m interested in gaming
+- I’m currently learning how to coding
